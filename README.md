@@ -16,7 +16,7 @@
 - 🚀 Passionate about solving real-world problems using technology
 - 🎓 Education: **MCA (Master of Computer Applications)**
 - 🏠 Based in: **Bhubaneswar, India**
-- 📫 Reach me: **[sandip3690@gmail.com](mailto:sandip3690@gmail.com)**
+- 📫 Reach me: **[sandip3690@gmail.com](mailto:sandip69690@gmail.com)**
 
 
 ---
